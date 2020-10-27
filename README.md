@@ -1,1 +1,1 @@
-# YusufGOR.github.io
+# YZGalaksi | Anasayfa
